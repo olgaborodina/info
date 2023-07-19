@@ -1,3 +1,5 @@
+**Hey, my name is Olga!**
+
 I'm an Astronomy PhD student at Center for Astrophysics | Harvard & Smithsonian.
 
 Apart from my research I love travelling, hiking, taking photos, and drinking wine!
